@@ -1,1 +1,0 @@
-# aykutakgnu.github.io
